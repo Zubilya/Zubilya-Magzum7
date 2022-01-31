@@ -1,1 +1,0 @@
-# Zubilya-Magzum7
